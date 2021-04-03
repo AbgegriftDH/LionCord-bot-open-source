@@ -9,4 +9,4 @@ wen wir die 100 member ereichen mache ich den !free-rank und  !report und !help 
 https://discord.gg/6ngwpKYUDM
 
 
-also joinen (klick hier)[https://discord.gg/6ngwpKYUDM]
+also joinen [klick hier](https://discord.gg/6ngwpKYUDM)
